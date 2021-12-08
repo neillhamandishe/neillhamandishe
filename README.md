@@ -1,0 +1,6 @@
+- @neillhamandishe
+- University of Zimbabwe Computer Engineering Undergrad
+- Freelance web developer
+- Freelance graphic designer
+- Interests besides code are photography and art
+- Email hello@neill.co.zw
